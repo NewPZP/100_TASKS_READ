@@ -1,1 +1,8 @@
 ## 0302 cloudy 
+## 0303 【about english learning】
+I found my english level 到了一个瓶颈， there is no way to improve it. althoug I have been reading a lot, and listening podcasts every day when I commute to work, and spending a lot of time on memorizing words. I planed to pass ELTS exam in 2023, but two years has passed, I still can not make it. That really make me feel frustrated.
+I need a plan, more efficent. write diary is a good way, with speicific topic. I need to deep dive into certain topic,practicing it regularly. speaking out without thingking. So I set a goal to write about 100 topics and deep reading 100 books. I suppose not just read it once, but also deep dive into it, find out the good scentence, the unfimiliar phrase, idoms and so on.And in the later day,I need to recall these things, and write them down in my diary.
+
+ai 改写：
+I've hit a plateau with my English—no matter what I do, I can't seem to break through. I've been reading extensively, listening to podcasts during my daily commute, and spending hours memorizing vocabulary. I had planned to pass the IELTS in 2023, but two years have slipped by and I still haven't managed it. It's incredibly frustrating.
+I need a more efficient plan. Keeping a diary with specific topics seems like a solid approach. I need to dive deep into particular subjects and practice them consistently until I can speak without overthinking. So I've set a goal: write on 100 different topics and read 100 books thoroughly. But I won't just skim through them once—I need to really dig in, identifying strong sentences, unfamiliar phrases, idioms, and expressions. Then, in the days that follow, I'll actively recall what I've learned and incorporate it into my diary entries.
