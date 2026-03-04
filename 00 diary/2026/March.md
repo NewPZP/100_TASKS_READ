@@ -6,3 +6,18 @@ I need a plan, more efficent. write diary is a good way, with speicific topic. I
 ai 改写：
 I've hit a plateau with my English—no matter what I do, I can't seem to break through. I've been reading extensively, listening to podcasts during my daily commute, and spending hours memorizing vocabulary. I had planned to pass the IELTS in 2023, but two years have slipped by and I still haven't managed it. It's incredibly frustrating.
 I need a more efficient plan. Keeping a diary with specific topics seems like a solid approach. I need to dive deep into particular subjects and practice them consistently until I can speak without overthinking. So I've set a goal: write on 100 different topics and read 100 books thoroughly. But I won't just skim through them once—I need to really dig in, identifying strong sentences, unfamiliar phrases, idioms, and expressions. Then, in the days that follow, I'll actively recall what I've learned and incorporate it into my diary entries.
+
+## 0304 【Spring Festival】
+Yesterday is 元宵节, it baically means the spring festival is over.For me, a man nealy 40 years old, I feel little atomsphere when it compares to the spring festival when I was a child. 
+First, there's only 7 法定节假日， I spended 2 days on the terrible road. It was frustrating in the highway during the Festival.As almost all the people were going back to home that day, it casues lots of traffic jams. and the 服务区 could not afford such people.It was even difficult to go to the toliet.
+I was maried and have two children, and one of them is only 8 months old. It was a bad expirience to take them with me during the Festival. you need to feed the baby, so lots of equipments are needed. and you know, the baby crying. things become totaly messed up.
+when I was child, the festival to me was totally a time to play and eat. But now, is always on the road.take the baby to the relative, partipate some meaningless 饭局. the relative to me is like the stranger, since I have went to university and work in the other city about two decades ago. many eldlers are gone, and our next generation did not know each other. I makes me feel we lost our home,our hometown, but I could not find my home in the new city where I live now.
+
+besides visting relatives of my wife, I just visit my grandmother.The elder is happy to the children. they got lot of honbaos.
+
+ai 改写：
+Yesterday was the Lantern Festival, which basically marks the end of the Spring Festival season. For me, pushing forty, it barely feels like a celebration compared to the festivities I remember as a child.
+For starters, we only get seven days of statutory holiday. I spent two of them stuck on gridlocked highways. Everyone was heading home at the same time, turning the roads into parking lots. The service stations couldn't handle the crowds—finding a toilet was nearly impossible.
+I'm married with two kids now, the youngest just eight months old. Traveling with them during the holiday was exhausting. You need to pack endless gear to feed the baby, and when they start crying, everything falls apart.
+When I was young, the holiday meant nothing but play and good food. Now it's just endless driving—shuttling the kids to relatives' houses, sitting through pointless dinner parties. These relatives feel like strangers. I left for university and started working in another city two decades ago. Many of the older generation have passed on, and our children don't even know each other. It feels like I've lost my hometown, yet I can't find a true home in the city where I live now.
+Besides visiting my wife's relatives, I only made time to see my grandmother. The elderly light up around children.
